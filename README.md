@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @foldawgs
+- 👀 I’m interested in keyboards and anime sometimes!
+- 🌱 I’m currently learning python, java, c++
+- 💞️ I’m looking to collaborate on not yet (i hope soon!)
+- 📫 How to reach me dm me on discord foldawgs#8672!
